@@ -24,7 +24,6 @@ A passionate guy from Mongolia in Germany.
 👯 I’m looking to collaborate on ....
 
 
-
 Here is some stuff for README I am gonna change it later :)
 
 
